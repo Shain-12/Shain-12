@@ -2,7 +2,7 @@
 - 👀 I’m interested in competitive programming and problem solving
 - 🌱 I’m currently learning as a 2nd year student of CSE at Aliah University
 - 💞️ I’m looking forward for various internship and skill development oppurtunities   
-- 📫 How to reach me -> email:hassanshain474@gmail.com
+- 📫 How to reach me -> email:hassanshain474@gmail.com &  IG:@shain_hassan.02
 - 😄 Pronouns: HE/Him
 
 <!---
